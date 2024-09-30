@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @reavenbb
+- 👀 I’m interested in code and cats.
+- 🌱 I’m currently learning code. 
+- 📫 aslizeynep17@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: sa beyler turk warmi.
